@@ -1,4 +1,4 @@
-Thanthey !! egurthaav !! ne yakka !!!
-peethi mmukkula dhana
-amma arisallo nuney esindhi 
-madichekkulu madhavi banglore lo illu konindhi
+manchi matalu vindham raandi
+akka ni ala titakudadhu
+amma arisallo nugulu esindhi 
+papam atla boothlu matladakudadhu
